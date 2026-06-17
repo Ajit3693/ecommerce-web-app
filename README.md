@@ -99,4 +99,4 @@ Ajit Kumar Mahto
 
 GitHub: https://github.com/Ajit3693
 
-LinkedIn: https://linkedin.com/ajitmahto3693
+https://www.linkedin.com/in/ajitmahto3693/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BwCf0xQ04Ql2tfTu0GJA6og%3D%3D
